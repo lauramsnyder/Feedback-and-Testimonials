@@ -3,10 +3,10 @@
 **August 2025**
 
 **Allison T. || Underwriting Service Operations Vice President**
-In a truly collaborative and innovative effort, Laura, Payten, and Katie worked together to create customized intake forms and a brand new [Power BI] dashboard to for MCE policy administrative work. This helps multiple Operations teams and Underwriting on greater transparency of processed work, where things are in the lifecycle of the policy and adherence to SLAs. It's been a resounding success for the groups that have seen it and are working within it and a great effort across the board. We appreciate the outstanding team work and dedication!
+ - In a truly collaborative and innovative effort, Laura, Payten, and Katie worked together to create customized intake forms and a brand new [Power BI] dashboard to for MCE policy administrative work. This helps multiple Operations teams and Underwriting on greater transparency of processed work, where things are in the lifecycle of the policy and adherence to SLAs. It's been a resounding success for the groups that have seen it and are working within it and a great effort across the board. We appreciate the outstanding team work and dedication!
 
 **Clint P. || Casualty & AWLS Service Operations Assistant Vice President**
-Thank you so much for your support of the continuous improvement efforts within E&S Casualty Underwriting Service Operations. The speed along with attention to detail are truly world class. The Operations team would not be able to support the BU as efficiently as we do without the tools and resources you have built. Thank you!
+ - Thank you so much for your support of the continuous improvement efforts within E&S Casualty Underwriting Service Operations. The speed along with attention to detail are truly world class. The Operations team would not be able to support the BU as efficiently as we do without the tools and resources you have built. Thank you!
 
 **June 2025**
 
